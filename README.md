@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @chloeboulter
+- 👀 I’m interested in AI, NN, Chemistry-related projects
+- 📫 How to reach me: drop me an email! chloeboulter2000@outlook.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I am a massive fan of metal and heavy rock, Ghost being my favourite band
